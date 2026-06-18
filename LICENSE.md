@@ -1,4 +1,4 @@
-Project-LakeSide is subject to copyright © laws and is the legal and intellectual property of Praxinos,Inc - Year of publishing 2020
+Project-LakeSide is subject to copyright © laws and is the legal and intellectual property of Praxinos,Inc - Year of publishing 2020 - IDDN.FR.001.060015.015.S.X.2019.000.00000
 
 Last update: January 14th, 2026
 
